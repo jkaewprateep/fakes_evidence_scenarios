@@ -24,6 +24,11 @@
 🐐💬 In some cases, mistake action applies to the policy controls machine but it does not ```fully apply the role of the auto-machine perform or work responsibilities```, ```a common role applied for the identity of the action response``` for the judgment and security insurance claims. Sometimes it is difficult to prove that the action to the mistakes is from a user whose own identity or someone in ```consideration performed by plan and scenario```. </br>
 🦭💬 You have your device in your hand and the ```organization provides the best efforts for the application```, please help ```identify yourself``` and use it correctly with ```clean application caches``` and ```not install third-party applications for telecommunications duplicated``` that phone can work on ```natural application behaviors```. </br>
 
+<p align="center" width="100%">
+    <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios/blob/main/image10.jpg"> </br>
+    <b> Do you know the bank account had prefix number intention, now international worldwide products support⁉️ </b>
+</p>
+
 ## 🧸💬 As convenience jointed to daily activity interrupts and authorize levitation from events benefits
 
 <p align="center" width="100%">
