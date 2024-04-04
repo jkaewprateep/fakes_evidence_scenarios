@@ -8,6 +8,8 @@
 
 ## 🧸💬 Confirmation messages as Vending machine or public exchange machine
 
+🦭💬 Location evidence, priority of evidence considered from intention to create when location is including ```vehicle```, ```transportation```, ```make mistakes in communication``` and ```fakes identification``` . </br>
+
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios/blob/main/ATM%20scenarios.png"> </br>
     <b> Confirmation messages </b>
