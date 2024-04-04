@@ -8,7 +8,8 @@
 
 ## 🧸💬 Confirmation messages as Vending machine or public exchange machine
 
-🦭💬 Location evidence, priority of evidence considered from intention to create when location is including ```vehicle```, ```transportation```, ```make mistakes in communication``` and ```fakes identification``` . That is because of machine working to served identity they receive from input from the authorization process this is after business negotiation the machine cannot verify or negotiation they received and believe in the authentication method results. </br>
+🦭💬 Location evidence, priority of evidence considered from intention to create when location is including ```vehicle```, ```transportation```, ```make mistakes in communication``` and ```fakes identification``` . That is because of machine working to ``` served the identity``` they receive input from the authorization process this is after business negotiation the machine cannot ```verify``` or ```negotiable``` they received and believe in the ```authentication method results```. </br>
+🧸💬 After ```authentication and verification``` methods the machine works as an ```authorized person``` and continues its function by the ability of its running platforms, ```identification``` is a high priority and ```authentication``` is critical in ATM machine learning, your ``ID has value``. </br>
 
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios/blob/main/ATM%20scenarios.png"> </br>
