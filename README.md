@@ -26,7 +26,8 @@
 
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios/blob/main/image10.jpg"> </br>
-    <b> Do you know the bank account had prefix number intention, now international worldwide products support⁉️ </b>
+    <b> Do you know the bank account had prefix number intention, now international worldwide products support⁉️ </b></br>
+    <b> * Picture from the Internet </b>
 </p>
 
 ## 🧸💬 As convenience jointed to daily activity interrupts and authorize levitation from events benefits
