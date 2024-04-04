@@ -13,8 +13,6 @@
 🐑💬 ➰ Somebody has been stolen my money from me with this scenario and 🥺💬 I had the same scenario, it is simpler and the bank manager tracked the theifs by bank's security cameras. This is initiate story I am working in the Financial banking business  ```🥺💬 Thank you manager 👤 🐾🐾🐱💬 I am extra ordinary, my skills is known about the process exceptions not strong hammers but we fight criminals.``` </br> 
 👧💬 🎈 Everybody can have story and ```skills comes from practice```, ```study and listen, understand``` and ```inheritances``` and ```transition``` by will as in laws, police how the potential came from ️⁉️ 👮‍♂️👮‍♀️💬💬 ```By Initially you had from family```, ```your study in school```, ```experience and relationship```, ```management to have``` and ```transition```. The transition is hard but applying this rule must be ```experts and can prove the potential with efficiency from the process and working as procedure```. </br>
 
-🐐💬 In some cases, mistake action applies to the policy controls machine but it does not fully apply the role of the auto-machine perform or work responsibilities, a common role applied for the identity of the action response for the judgment and security insurance claims. Sometimes it is difficult to prove that the action to the mistakes is from a user whose own identity or someone in consideration perform by plan and scenario. </br>
-
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios/blob/main/ATM%20scenarios.png"> </br>
     <b> Confirmation messages </b>
@@ -22,6 +20,9 @@
 
 💃( 👩‍🏫 )💬 ```Auto-response machine``` working by program procedure created the ```logging with policy``` to improve the ```process and development``` and there are many cases found of common behaviors, and the apply of policy working this way. ```Higher potential in actions should have a slower response and transparent mapping policy for action```. You have to accept that police have high potential action but sometimes they had slow action against the ATM machine ```👮‍♀️💬 I just thought only at the month-end period only.``` </br>
 👧💬 🎈 That is because ```high-potential actions``` need to be carefully applied to our ```citizens``` and some actions cannot be reversed they are working on the ```risks of police``` as ```criminal discriminators```. </br>
+
+🐐💬 In some cases, mistake action applies to the policy controls machine but it does not fully apply the role of the auto-machine perform or work responsibilities, a common role applied for the identity of the action response for the judgment and security insurance claims. Sometimes it is difficult to prove that the action to the mistakes is from a user whose own identity or someone in consideration performed by plan and scenario. </br>
+🦭💬 You have your device in your hand and the organization provides the best efforts for the application, please help identify and use it correctly with clean application caches and not install third-party applications for telecommunications duplicated that phone can work on natural application behaviors. </br>
 
 ## 🧸💬 As convenience jointed to daily activity interrupts and authorize levitation from events benefits
 
