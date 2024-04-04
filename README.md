@@ -10,6 +10,7 @@
 
 🦭💬 Location evidence, priority of evidence considered from intention to create when location is including ```vehicle```, ```transportation```, ```make mistakes in communication``` and ```fakes identification``` . That is because of machine working to ``` served the identity``` they receive input from the authorization process this is after business negotiation the machine cannot ```verify``` or ```negotiable``` they received and believe in the ```authentication method results```. </br>
 🧸💬 After ```authentication and verification``` methods the machine works as an ```authorized person``` and continues its function by the ability of its running platforms, ```identification``` is a high priority and ```authentication``` is critical in ATM machine learning, your ``ID has value``. </br>
+🐑💬 ➰ Somebody has been stolen my money from me with this scenario and 🥺💬 I had the same scenario, it is simpler and the bank manager tracked the theifs by bank's security cameras. This is initiate story I am working in the Financial banking business 🥺💬 Thank you manager 👤 </br> 
 
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios/blob/main/ATM%20scenarios.png"> </br>
