@@ -13,6 +13,8 @@
 🐑💬 ➰ Somebody has been stolen my money from me with this scenario and 🥺💬 I had the same scenario, it is simpler and the bank manager tracked the theifs by bank's security cameras. This is initiate story I am working in the Financial banking business  ```🥺💬 Thank you manager 👤 🐾🐾🐱💬 I am extra ordinary, my skills is known about the process exceptions not strong hammers but we fight criminals.``` </br> 
 👧💬 🎈 Everybody can have story and ```skills comes from practice```, ```study and listen, understand``` and ```inheritances``` and ```transition``` by will as in laws, police how the potential came from ️⁉️ 👮‍♂️👮‍♀️💬💬 ```By Initially you had from family```, ```your study in school```, ```experience and relationship```, ```management to have``` and ```transition```. The transition is hard but applying this rule must be ```experts and can prove the potential with efficiency from the process and working as procedure```. </br>
 
+🐐💬 In some cases, mistake action applies to the policy controls machine but it does not fully apply the role of the auto-machine perform or work responsibilities, a common role applied for the identity of the action response for the judgment and security insurance claims. Sometimes it is difficult to prove that the action to the mistakes is from a user whose own identity or someone in consideration perform by plan and scenario. </br>
+
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios/blob/main/ATM%20scenarios.png"> </br>
     <b> Confirmation messages </b>
