@@ -18,7 +18,7 @@
     <b> Confirmation messages </b>
 </p>
 
-💃( 👩‍🏫 )💬 Auto-response machine working by program procedure created the logging with policy to improve the process and development and there are many cases found of common behaviors, and the apply of policy working this way. Higher potential in actions should have a slower response and transparent mapping policy for action. You have to accept that police have high potential action but sometimes they had slow action against the ATM machine 👮‍♀️💬 I just though only at the month-end period only. </br>
+💃( 👩‍🏫 )💬 ```Auto-response machine``` working by program procedure created the ```logging with policy``` to improve the ```process and development``` and there are many cases found of common behaviors, and the apply of policy working this way. ```Higher potential in actions should have a slower response and transparent mapping policy for action```. You have to accept that police have high potential action but sometimes they had slow action against the ATM machine ```👮‍♀️💬 I just though only at the month-end period only.``` </br>
 
 ## 🧸💬 As convenience jointed to daily activity interrupts and authorize levitation from events benefits
 
