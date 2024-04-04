@@ -48,5 +48,5 @@
 - - - 
 
 🦭💬 Prank calls and conversation calls can be identified by the ```continuity of the story```, ```action plan```, and ```effect result from the conversation```. When prank calls do not aims to create continuous action can create gaps or mistakes to ```provide benefits to third-party``` but prank calls can ```handled by an application``` and it aim to call intention only. </br>
-🐐💬 Sometimes the auto-machine working correctly and do not accept of ```parent gradients`` , we called ```parent gradients``` because it is twice the actions and sometimes they claim on identity of the account owner too. </br>
+🐐💬 Sometimes the auto-machine working correctly and do not accept of ```parent gradients``` , we called ```parent gradients``` because it is twice the actions and sometimes they claim on identity of the account owner too. </br>
 
