@@ -43,4 +43,9 @@
 👧💬 🎈 Many times contact back or transferred calls for long conversations or unknown sources or with setup theme, visit police at the police station they will suggest you to blocked unknown calls when but it is againts the rishes hours and someone may waiting for a business calls. </br>
 🦭💬 As long as this call continues they track and setup you for some action and they can talk or distribute incorrect messages on your backside because you may not know or you know but cannot stop them because their intention also telling you about the setup actions. These kinds of actions continue is interrupt of work and daily activities and you cannot response to people's misunderstandings but they use prank calls to identify you. Police do not do this. </br>
 
+- - - 
 🥺💬 I confirm of these calls and actions to police at the police stations many times when there are speakers and background news claims on the action or conversation talks around I need to prove it is not true and they are not stop to do it. I cannot go to everyone and provide them the same information to every questions because lies is more easy and they made up new story everyday with high contrast or potential evidence that sometimes to talk about or prove is create some feedback on the speaker. I response by tell them sometimes I talked to police at the police stations many times and they do not talking or tell me to do what they try or telling anybody and they should stop their action. </br>
+- - - 
+
+🦭💬 Prank calls and conversation calls can be identified by the continuity of the story, action plan, and effect result from the conversation. When prank calls do not aims to create continuous of action can create gaps or mistakes to provide benefits to third-party but prank calls can handled by application and it aim to call intention only. </br>
+
