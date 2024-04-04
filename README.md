@@ -31,6 +31,8 @@
 
 ## 🧸💬 As convenience jointed to daily activity interrupts and authorize levitation from events benefits
 
+🐨🎁🎵🎶 There are many ways someone can have of your information and can elevate information and events to claim some action or support information, it is hard to control because police work hard on this issue but in Thai traditions, parents do not mean only father or mother by born or by-laws, police need to confirm and work with detail before taking some actions when someone can manipulate of action by claim right on relationship target may not know and they can continue doing it without prove process or attention process. </br>
+
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios/blob/main/Fake%20evidents%20scenarios.png"> </br>
     <b> Remote tracking and working time events interrupts </b>
